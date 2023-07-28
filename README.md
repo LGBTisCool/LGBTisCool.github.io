@@ -1,2 +1,0 @@
-# LGBTisCool.github.io
-test
